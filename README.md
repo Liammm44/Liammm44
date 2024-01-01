@@ -1,3 +1,3 @@
-### Hi there 👋
+### hi
 
-I'm not sure how this works but it's pretty cool...
+
